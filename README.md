@@ -19,7 +19,7 @@
 
 点击访问：<a href="https://hj-264.pages.dev/">分享永不</a>
 
-点击访问：<a href="https://hj-267.pages.dev/">海角禁区</a>
+点击访问：<a href="https://hj-267.pages.dev/">今日黑料</a>
 
 点击访问：<a href="https://hj-268.pages.dev/">今日吃瓜海角社区</a>
 
